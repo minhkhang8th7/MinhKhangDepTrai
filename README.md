@@ -1,3 +1,0 @@
-# MinhKhangDepTrai
-
-Nguyễn Minh Khang
